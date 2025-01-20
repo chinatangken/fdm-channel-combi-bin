@@ -16,4 +16,3 @@ sory I cant English more
 ![lQLPJyJ7Z1TitnnNBjnNBlmwtrgEynklFmoHcg0Vdv56AA_1625_1593](https://github.com/user-attachments/assets/79f4cbd8-dce2-4679-9e28-4ac30c3ab9ae)
 ![lQLPJxIPuBislDnNBfDNClCwapY5-ZGKFxIHcgyy4AkzAA_2640_1520](https://github.com/user-attachments/assets/5276669e-39fb-469b-af32-78114087d626)
 ![lQLPJxfRGbWFcfnNBiLNCLSwfDwQFNuIYKoHcg1W1W3LAA_2228_1570](https://github.com/user-attachments/assets/6bfb0257-dbe4-4e59-a53e-4f22a1aa6300)
-![lQLPJwBeb3s_t_nNCHDNDwCwhZlk4ugkX2cHcgyKDxgIAA_3840_2160](https://github.com/user-attachments/assets/3455683f-9c9d-4aaf-b7c7-4763dba4265a)
